@@ -8,7 +8,7 @@
 1 tbsp grass-fed ecological creamy BUTTER
 
 ## Instructions, first step
-When butter is room temp, mix them togehter, then add on top
+When butter is room temp, mix them together, then add on top
 
 ## Ingredients, second step
 4 tbsp powdered sugar
